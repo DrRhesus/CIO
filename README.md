@@ -2,4 +2,4 @@
 
 
 
-[![Watch on TikTok](https://img.shields.io/badge/▶️%20Watch%20on%20TikTok-black?logo=tiktok)]([[https://www.tiktok.com/@xthetrinchox/video/7549951615176920342]())
+[![Watch on TikTok](https://img.shields.io/badge/▶️%20Watch%20on%20TikTok-black?logo=tiktok)]([[https://www.tiktok.com/@xthetrinchox/video/7549951615176920342]
